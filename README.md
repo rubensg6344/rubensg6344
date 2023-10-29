@@ -1,0 +1,1 @@
+- 👋 Iae rapaz, me chamo Rubens e sou programador a 4 anos, tenho 16 anos atualmente e amo o que faço.
